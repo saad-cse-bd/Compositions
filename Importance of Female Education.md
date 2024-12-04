@@ -1,4 +1,4 @@
-# The Importance of Female Education in Bangladesh
+# The Importance of Female Education
 
 Education is one of the most important things for everyone. It is the key that opens doors to many opportunities in life. Female education is especially important because it helps women become strong, independent, and successful. In Bangladesh, many girls still do not have the chance to go to school, and this is a big problem. When girls are not educated, they face many challenges in life. But when they are educated, they can help their families, their communities, and even the whole country grow.
 
